@@ -1,2 +1,2 @@
-# t-rkbayra-.jpg
+# turkbayra-.jpg
 türk bayrağı çalışmam
